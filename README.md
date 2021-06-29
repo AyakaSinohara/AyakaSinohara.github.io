@@ -1,0 +1,1 @@
+# AyakaSinohara.github.io
